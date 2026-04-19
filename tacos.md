@@ -1,1 +1,1 @@
-Tacos al pastor
+Ya no tenemos la receta anterior
